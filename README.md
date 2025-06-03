@@ -11,7 +11,7 @@ I am interested in collaborating with you on exciting and challenging projects. 
 You can find me on my accounts:
 
 - [LinkedIn](www.linkedin.com/in/rawan-alrehaili-se)
-- [Email](rawanalrehaili5@gmail.com)
+- [rawanalrehaili5@gmail.com](rawanalrehaili5@gmail.com)
 
 I look forward to connecting with you soon and collaborating on future projects! 😊
 
