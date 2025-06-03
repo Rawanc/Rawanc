@@ -4,7 +4,7 @@
 I am software engineer student, with excellent organizational skills and a knack for teamwork. I consider myself highly adaptable to different environments and always focused on achieving goals. I also have knowledge of various programming languages ​​such as Java, Python, among others. I have a keen interest in software development and systems analysis.
 
 
-## Collaboration💞
+## Collaboration🤝
 I am interested in collaborating with you on exciting and challenging projects. Together we can achieve great things!
 
 ## Contact 📫
