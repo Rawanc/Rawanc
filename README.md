@@ -10,7 +10,7 @@ I am interested in collaborating with you on exciting and challenging projects. 
 ## Contact 📫
 You can find me on my accounts:
 
-- Linkedin: [Rawan Alrehaili](www.linkedin.com/in/rawan-alrehaili-se)
+- Linkedin: [Rawan Alrehaili](http://www.linkedin.com/in/rawan-alrehaili5)
 - Email: rawanalrehaili5@gmail.com
 
 I look forward to connecting with you soon and collaborating on future projects! 😊
